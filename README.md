@@ -43,5 +43,5 @@ Feel free to use or improve the queries!
 Made with ❤️ by [Alaa Ayman Ramadan]
 
 💼 LinkedIn 
-[LinkedIn Profile](https://www.linkedin.com/in/https://www.linkedin.com/in/alaa-ramadan-89116232a/)
+[LinkedIn Profile](https://www.linkedin.com/in/alaa-ramadan-89116232a/)
 
