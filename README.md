@@ -43,7 +43,11 @@ Feel free to use or improve the queries!
 Made with ❤️ by [Alaa Ayman Ramadan]
 
 My favorite Instructor [Menna Elsahy](https://www.linkedin.com/in/mennatullahelsahy)
+
+---
 Thanks to NTI for Opportunity😍
+---
+
 💼 My LinkedIn 
 [LinkedIn Profile](https://www.linkedin.com/in/alaa-ramadan-89116232a/)
 
